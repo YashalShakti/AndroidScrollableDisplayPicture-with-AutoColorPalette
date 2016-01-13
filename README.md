@@ -5,3 +5,4 @@
 ![2](http://i.imgur.com/HW37Mxq.png)
 ![3](http://i.imgur.com/E38T22H.png)
 
+<img src="http://i.imgur.com/5h2xl68.png" alt="Drawing" style="width: 200px;"/>
